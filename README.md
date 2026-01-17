@@ -31,7 +31,8 @@ bday 3/8 | INFP | very bad english | i speak indonesia and english
 🗒️ NOTE :
 
 
-I rarely upload my art on Twitter cuz I'm a bit busy with my friends and school , i usually always listen to music 
+I rarely upload my art on Twitter cuz I'm a bit busy with my friends and school , i usually always listen to music
+
 <!--
 **Cloverkiki/Cloverkiki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
