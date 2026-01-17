@@ -33,7 +33,7 @@ bday 3/8 | INFP | very bad english | i speak indonesia and english
 
 I rarely upload my art on Twitter cuz I'm a bit busy with my friends and school , i usually always listen to music
 
- ## twt / x : 
+ ## twt  :
  https://x.com/Cl0verkiki?t=PTJImWz05KxGc2jpNq5fdA&s=09 
 
 <!--
