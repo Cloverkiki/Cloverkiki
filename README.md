@@ -1,7 +1,7 @@
 
 ![7quid-fnf-binej-yeah](https://github.com/user-attachments/assets/8fa7e59e-c112-499e-a43f-1192837cdea3)
 
-##ABOUT ME !!
+## ABOUT ME !!
 
 
 
