@@ -1,5 +1,5 @@
 
-![7quid-binej](https://github.com/user-attachments/assets/add55955-84de-48a1-9a57-f5f7e8da0ca7)
+![7quid-fnf-binej-yeah](https://github.com/user-attachments/assets/8fa7e59e-c112-499e-a43f-1192837cdea3)
 
 <!--
 **Cloverkiki/Cloverkiki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
