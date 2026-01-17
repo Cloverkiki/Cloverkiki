@@ -1,5 +1,5 @@
 
-![binej-7quid_1](https://github.com/user-attachments/assets/ac2f5549-d2e9-4ce4-854d-51c9611ddc19)
+   ![binej-7quid_1](https://github.com/user-attachments/assets/ac2f5549-d2e9-4ce4-854d-51c9611ddc19)
 
 
 ## ABOUT ME !!
