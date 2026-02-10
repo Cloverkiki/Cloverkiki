@@ -1,40 +1,7 @@
 
-   ![binej-7quid_1](https://github.com/user-attachments/assets/ac2f5549-d2e9-4ce4-854d-51c9611ddc19)
+<img width="1600" height="1292" alt="Tak_berjudul424_20260210164443" src="https://github.com/user-attachments/assets/d74458ce-c3e2-4798-a9f6-e383956a440d" />
 
-
-## ABOUT ME !!
-
-
-
-
-📌 Hi ! my name is kim / kiki 
- ( u can call me anything u want )
-
-
-
-
-bday 3/8 | INFP | very bad english | i speak indonesia and english 
-
-🧷 INTERESTS :
-
-
-- 7quid
-- 17bucks
-- mandela catalogue
-- life is strange / bts / 2
-- gorillaz
-- cry of fear
-- afraid of monster
-- dandys world
-
-
-🗒️ NOTE :
-
-
-I rarely upload my art on Twitter cuz I'm a bit busy with my friends and school , i usually always listen to music
-
- ## twt  :
- https://x.com/Cl0verkiki?t=PTJImWz05KxGc2jpNq5fdA&s=09 
+" LOVE SICK ! , CANNIBAL "
 
 <!--
 **Cloverkiki/Cloverkiki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
