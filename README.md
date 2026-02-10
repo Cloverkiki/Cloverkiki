@@ -1,6 +1,5 @@
 
 <img width="1600" height="1292" alt="Tak_berjudul424_20260210164443" src="https://github.com/user-attachments/assets/d74458ce-c3e2-4798-a9f6-e383956a440d" />
-
 " LOVE SICK ! , CANNIBAL "
 
 <!--
